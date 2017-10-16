@@ -1,2 +1,2 @@
 # wirtualny-spacer
-Zdjêcia
+ZdjÄ™cia
